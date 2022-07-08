@@ -1,3 +1,3 @@
 # SrcClicker
-## Where do i download it?
+## Where can i download it?
 Sample text.
